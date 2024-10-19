@@ -1,1 +1,1 @@
-betulkaya000.github.io
+https://betulkaya000.github.io
